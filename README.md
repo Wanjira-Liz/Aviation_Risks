@@ -1,4 +1,4 @@
-✈️ Phase 1 Project-Aviation Safety Analysis by Wanjira_Nyamburaby Wanjira_Nyambura
+✈️ Phase 1 Project-Aviation Safety Analysis by Wanjira_Nyambura
 
 📌 Project Goal
 
